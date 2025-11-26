@@ -4,6 +4,5 @@
 <p align="right">Straight ally</p>
 <p align="left">Español - English - 한국어</p>
 
-  <img width="736" height="736" alt="1000003820" src="https://github.com/user-attachments/assets/b715eab2-a349-479f-bff6-b9e44fd91cae" />
-
+  
 
