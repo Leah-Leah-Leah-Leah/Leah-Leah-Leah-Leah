@@ -1,6 +1,5 @@
-[Pronouns](https://en.pronouns.page/@LEEWEEEAHHHHHHHH)
-~ [atabook](https://leah365.atabook.org/)
-~ [Strawpage](https://fxckingc0ld.straw.page/)
+${\color{pink}\Huge{\texttt{WIP🤯}}}$
 
 
-![e18cc11a-9cf7-40b5-82ff-892bf6883625_549731582-0a032226-a17e-42b6-99e0-0bfeb21ff064](https://github.com/user-attachments/assets/6389e3dd-fdd0-403f-8b13-fe013737955a)
+<img width="512" height="512" alt="1b823867-aa8f-4b2b-b906-be879fb3693e-1_all_3551" src="https://github.com/user-attachments/assets/c2035adb-fdf3-4552-bebb-fc1b346a8c84" />
+
