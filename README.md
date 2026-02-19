@@ -10,3 +10,5 @@ If you know me irl, u know I talk to myself ALOT. do not troll on me for it 🥀
 **Dni..**: Proshippers, Darkshippers, judgemental people, trolls, just toxic people in general 
 
   # <p align="center">WIP!!!</p>
+
+  ( Uhhh yeah the Deoksu skin I used, I did NOT COPY it. It was a gift skin for my friend but they claim they dont know me anymore ig so its originally created by me ✌️😿)
