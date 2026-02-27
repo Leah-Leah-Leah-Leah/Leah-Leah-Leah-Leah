@@ -1,6 +1,9 @@
-![](https://komarev.com/ghpvc/?username=Leah-365&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=Leah-365&color=red)
 
-[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://fxckingc0ld.straw.page) [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)
+[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://fxckingc0ld.straw.page) ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ ⠀ ⠀ ⠀[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)
 
-![1000004843](https://github.com/user-attachments/assets/c6944dc9-e126-43e4-b69e-60f52e121364)
+<p align="center">· · ─ ·ʚɞ· ─ · ·</p>
+
+![1000004857](https://github.com/user-attachments/assets/993756fb-01a2-4d28-bea9-97122655e808)
+
 
