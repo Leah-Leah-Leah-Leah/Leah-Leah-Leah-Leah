@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Leah-365&color=blue)
 
-[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://fxckingc0ld.straw.page) ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ ⠀ ⠀ ⠀[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)
+rmking strawpage ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀ ⠀[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)
 
 <p align="center">· · ─ ·ʚɞ· ─ · ·</p>
 
