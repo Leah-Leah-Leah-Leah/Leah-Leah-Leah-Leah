@@ -26,3 +26,8 @@ __________
 
  <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 2nd 𝗼𝗳 2026</p>
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
+  </a>
+</p>
