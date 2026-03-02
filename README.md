@@ -1,6 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=Leah-365&color=blue)
 
- [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)⠀I glaze myself to much i done signed my own ata 💀🙏🏼⠀ ⠀ ⠀⠀ ⠀  ⠀⠀ ⠀
+ [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)⠀I glaze myself to much i done signed my own ata 💀🙏🏼⠀ ⠀
+ 
+<p align="center">Snapchat = l34h_365</p>⠀⠀ ⠀  ⠀⠀ ⠀
 
 <p align="center">· · ─ ·ʚɞ· ─ · ·</p>
 
@@ -22,5 +24,5 @@ This account is for Ponytown yuhhhh. I'm usually afk / offtab so always w2i unle
 
 __________
 
- <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 1𝘀𝘁 𝗼𝗳 2026</p>
+ <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 2nd 𝗼𝗳 2026</p>
 
