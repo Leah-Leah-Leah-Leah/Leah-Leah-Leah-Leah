@@ -24,7 +24,7 @@ This account is for Ponytown yuhhhh. I'm usually afk / offtab so always w2i unle
 
 __________
 
- <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 2nd 𝗼𝗳 2026</p>
+ <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 5th 𝗼𝗳 2026</p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&redirect=true">
