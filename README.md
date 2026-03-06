@@ -2,7 +2,7 @@
 
  [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)⠀I glaze myself to much i done signed my own ata 💀🙏🏼⠀ ⠀
  
-<p align="center">Snapchat = l34h_2g04t3d</p>⠀⠀ ⠀  ⠀⠀ ⠀
+<p align="center">Snapchat = m4l1y4</p>⠀⠀ ⠀  ⠀⠀ ⠀
 
 <p align="center">· · ─ ·ʚɞ· ─ · ·</p>
 
