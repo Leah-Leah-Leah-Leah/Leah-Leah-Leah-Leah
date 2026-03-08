@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Leah-365&color=blue)
 
- [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)⠀I glaze myself to much i done signed my own ata 💀🙏🏼⠀ ⠀
- 
-<p align="center">Snapchat = m4l1y4</p>⠀⠀ ⠀  ⠀⠀ ⠀
+ [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://leah365.atabook.org/)⠀ ⠀⠀⠀ ⠀  ⠀⠀ ⠀
 
 <p align="center">· · ─ ·ʚɞ· ─ · ·</p>
 
