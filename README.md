@@ -4,7 +4,8 @@
 
 <p align="center">· · ─ ·ʚɞ· ─ · ·</p>
 
-<img width="528" height="568" alt="Screenshot 2026-02-28 073305" src="https://github.com/user-attachments/assets/acd786a3-11d2-47e9-a5d0-6047bc02fdfa" />
+<img width="337" height="331" alt="Screenshot 2026-02-08 104355" src="https://github.com/user-attachments/assets/40fcee6e-4fd4-412c-afea-dbd3337ba883" />
+
 
 <p align="center">Ain't to much to know abt me. I like basketball and being myself 💯 I also study Korean and Chinese so yeah.
 This account is for Ponytown yuhhhh. I'm usually afk / offtab so always w2i unless I approach u first.</p>
@@ -22,7 +23,7 @@ This account is for Ponytown yuhhhh. I'm usually afk / offtab so always w2i unle
 
 __________
 
- <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 5th 𝗼𝗳 2026</p>
+ <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 8th 𝗼𝗳 2026</p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&redirect=true">
