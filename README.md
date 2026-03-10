@@ -23,10 +23,13 @@ This account is for Ponytown yuhhhh. I'm usually afk / offtab so always w2i unle
 
 __________
 
- <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 8th 𝗼𝗳 2026</p>
+ <p align="center">𝗟𝗮𝘀𝘁 𝘂𝗽𝗱𝗮𝘁𝗲𝗱 : 𝗠𝗮𝗿𝗰𝗵 10th 𝗼𝗳 2026</p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
+
+![1000004969](https://github.com/user-attachments/assets/2f161fdc-9fa5-4f89-9620-946b9e54ea1f)
+
