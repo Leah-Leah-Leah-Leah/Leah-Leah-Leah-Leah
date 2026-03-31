@@ -1,2 +1,2 @@
-[Carrd](https://kingmfvon.carrd.co)
+[NEW CARRD](https://https://leaaahhhhhh.carrd.co/)
 
