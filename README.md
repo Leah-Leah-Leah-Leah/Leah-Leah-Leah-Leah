@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=Leah-Leah-Leah-Leah&label=★)
 
+[𝙂𝙐𝙉𝙎.𝙇𝙊𝙇](https://guns.lol/leah_leah_leah)
+
 ${\color{#e94e4e}\Huge{\texttt{NUM. 1 SOUMA BIAS . SHOTTIE ,}}}$
 ${\color{#e94e4e}\Huge{\texttt{1DERZ , COER , STAY}}}$
 
