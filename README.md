@@ -10,6 +10,14 @@ IM USUALLY WITH MY FRIENDS: [SHO](https://github.com/soulseob) , [SIEUN](https:/
 
 My second account is [SHUNTARO CHISHIYA](https://github.com/SHUNTARO-CHlSHIYA)
 
+
+<img width="736" height="981" alt="1000005697" src="https://github.com/user-attachments/assets/4dbf4db8-cb39-4a36-a90a-25b503f9229d" />
+
+[ᴄᴏᴍꜰꜱ] [ꜱʜɪᴘꜱ](https://shiips2.straw.page)
+
+
+
+
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color=53b14f&bar_color_cover=false">
