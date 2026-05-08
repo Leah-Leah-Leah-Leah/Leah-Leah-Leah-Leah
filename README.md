@@ -13,7 +13,7 @@ My second account is [SHUNTARO CHISHIYA](https://github.com/SHUNTARO-CHlSHIYA)
 
 <img width="736" height="981" alt="1000005697" src="https://github.com/user-attachments/assets/4dbf4db8-cb39-4a36-a90a-25b503f9229d" />
 
-[ᴄᴏᴍꜰꜱ] [ꜱʜɪᴘꜱ](https://shiips2.straw.page)
+[ᴄᴏᴍꜰꜱ] [ꜱʜɪᴘꜱ](https://shiips2.straw.page) [Pt hall of shame](https://hallofehame.straw.page)
 
 
 
