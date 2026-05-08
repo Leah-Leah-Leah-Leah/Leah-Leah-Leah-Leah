@@ -2,12 +2,13 @@
 
 [𝙂𝙐𝙉𝙎.𝙇𝙊𝙇](https://guns.lol/leah_leah_leah) ’ [𝙎𝙏𝙍𝘼𝙒](https://oneoreightboy.straw.page) . [ATABOOK](https://leah365.atabook.org/)
 
-${\color{#e94e4e}\Huge{\texttt{NUM. 1 SOUMA BIAS . SHOTTIE ,}}}$
-${\color{#e94e4e}\Huge{\texttt{1DERZ , COER , STAY}}}$
-
 <img width="736" height="642" alt="1000005656" src="https://github.com/user-attachments/assets/7889c847-fb72-46bb-a265-78650aff7db7" />
 
-# <p align="center">1derz since 2024 i love 1or8 smmm</p
+HELLOOO PLEASE GO SIGN [SHO'S ATABOOK](https://shosletters.atabook.org/) PLSSSS THEY ARE SO COOL!!!
+
+IM USUALLY WITH MY FRIENDS: [SHO](https://github.com/soulseob) , [SIEUN](https://github.com/sieunnie) , [ARISU](https://github.com/puprui) , [AJ](https://github.com/Azoaj) , [LEMON](https://github.com/ire-landd) AND [BATZY](https://github.com/bunnipawsic)
+
+My second account is [SHUNTARO CHISHIYA](https://github.com/SHUNTARO-CHlSHIYA)
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z3z7ii5tbjphy5avsh2jwvp45e&redirect=true">
