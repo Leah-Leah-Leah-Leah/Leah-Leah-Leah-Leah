@@ -6,7 +6,7 @@
 
 HELLOOO PLEASE GO SIGN [SHO'S ATABOOK](https://shosletters.atabook.org/) PLSSSS THEY ARE SO COOL!!!
 
-IM USUALLY WITH MY FRIENDS: [SHO](https://github.com/soulseob) , [SIEUN](https://github.com/sieunnie) , [ARISU](https://github.com/puprui) , [AJ](https://github.com/Azoaj) , [LEMON](https://github.com/ire-landd) AND [BATZY](https://github.com/bunnipawsic)
+IM USUALLY WITH MY FRIENDS: [SHO](https://github.com/82-major) , [SIEUN](https://github.com/sieunnie) , [ARISU](https://github.com/puprui) , [AJ](https://github.com/Azoaj) , [LEMON](https://github.com/ire-landd) AND [BATZY](https://github.com/bunnipawsic)
 
 My second account is [SHUNTARO CHISHIYA](https://github.com/SHUNTARO-CHlSHIYA)
 
