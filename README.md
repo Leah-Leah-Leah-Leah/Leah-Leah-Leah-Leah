@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Leah-Leah-Leah-Leah&label=★)
 
-[STRAW]((https://1malegendthanos.straw.page/)) . [ATABOOK](https://leah365.atabook.org/)
+[ATABOOK](https://leah365.atabook.org/)
 
 HELLOOO PLEASE GO SIGN [SHO'S ATABOOK](https://shosletters.atabook.org/) PLSSSS THEY ARE SO COOL!!!
 
