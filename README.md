@@ -1,9 +1,7 @@
-![](https://komarev.com/ghpvc/?username=Leah-Leah-Leah-Leah&label=★)
+<img width="212" height="256" alt="pony-town-wife 2 a unemployed bozo-Usagi-kiss-sit-blinking-padded-toy40-4x" src="https://github.com/user-attachments/assets/fd70206f-7b41-416c-9812-f533d09a019a" />
 
-[ATABOOK](https://leah365.atabook.org/)
+This is gon sound stupid af but even if I play pt I perfer nobody on pt to int unless your a friend or a friends freind. Lit pt people are so complicated *sobs*
 
-HELLOOO PLEASE GO SIGN [SHO'S ATABOOK](https://shosletters.atabook.org/) PLSSSS THEY ARE SO COOL!!!
+                                 << SHOYO , MARTIN , AJ >>
 
-IM USUALLY WITH MY FRIENDS: [SHO](https://github.com/82-major) , [MARTIN](https://github.com/martin-cortis) , [AJ](https://github.com/Azoaj) , [LEMON](https://github.com/ire-landd) AND [BATZY](https://github.com/bunnipawsic)
-
-My second account is [SEO CHANGBIN](https://github.com/SEO-CHANGBlN)
+  Sign [SHO'S ATA!!!!!!!!!!!!!1](https://github.com/82-major)
