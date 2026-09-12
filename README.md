@@ -6,5 +6,5 @@
 
 ♡ . ♡ [Shoyo's ata♡](https://shosletters.atabook.org/) ♡ . ♡
 
-[Prns](https://pronouns.cc/@Haelleah)
+[Prns](https://pronouns.cc/@Haelleah) . [ata](https://leah365.atabook.org) . [straw](https://haelleah.straw.page)
 
