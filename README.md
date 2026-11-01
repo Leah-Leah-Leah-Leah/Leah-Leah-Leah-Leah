@@ -4,5 +4,5 @@
 
 <p align="center">" Fean...is...𝙒𝙖𝙧... "</p>
 
-[prns](https://pronouns.cc/@Haelleah) [mew straw](https://oneoreight-1derz.straw.page/) [ata](https://leah365.atabook.org/)
+[prns](https://pronouns.cc/@Haelleah) [ata](https://leah365.atabook.org/)
  ♡[SHOEYS ATAAA](https://shosletters.atabook.org/)♡
