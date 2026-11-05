@@ -1,1 +1,1 @@
-${\textsf{\color{#574B55}" The great "}}$
+${\textsf{\color{#74675F}" The great "}}$
