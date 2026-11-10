@@ -1,5 +1,3 @@
-${\textsf{\color{#74675F}" The great}}$ ${\textsf{\color{#723B26}Joseon}}$ ${\textsf{\color{#574B55}Dynasty . . . "}}$
+hey buddy...That's kinda rasict...get clipped loser ♡
 
-<img width="640" height="420" alt="1311" src="https://github.com/user-attachments/assets/97e30ca5-8f0f-405e-89bc-17f225fc371c" />
-
-art creds:cancallmecap on insta . . .
+<img width="1080" height="2340" alt="1340" src="https://github.com/user-attachments/assets/1aacefc3-90aa-4432-b0a1-01ca58826f25" />
